@@ -1,4 +1,4 @@
-# Kizikafuka
+# Kizikafuka 🌙
 
 **`A Level 1 crook trying to level up his way up`**
 
